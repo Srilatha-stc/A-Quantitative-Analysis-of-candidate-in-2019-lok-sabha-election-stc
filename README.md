@@ -1,0 +1,1 @@
+# A-Quantitative-Analysis-of-candidate-in-2019-lok-sabha-election-stc
